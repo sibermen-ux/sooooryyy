@@ -1,4 +1,4 @@
-# sooooryyy
+<!doctype html>
 <html lang="tr">
 <head>
   <meta charset="utf-8" />
@@ -8,17 +8,23 @@
     body{
       margin:0; padding:0;
       font-family: 'Montserrat', sans-serif;
-      background:#f3e9ff; /* sade mor tonlu arka plan */
+      background:#2d004d; /* koyu mor arka plan */
       display:flex; align-items:center; justify-content:center;
       min-height:100vh;
     }
+    .box:hover{
+      transform:scale(1.02);
+      box-shadow:0 15px 35px rgba(0,0,0,0.45);
+    }
+
     .box{
-      width:90%; max-width:600px;
-      background:white;
-      padding:30px;
-      border-radius:16px;
-      box-shadow:0 8px 20px rgba(0,0,0,0.1);
+      width:95%; max-width:600px;
+      background:#3b0066;
+      padding:25px;
+      border-radius:20px;
+      box-shadow:0 10px 25px rgba(0,0,0,0.35);
       text-align:center;
+      transition:transform 0.4s ease, box-shadow 0.4s ease;
     }
     h1{
       margin-top:0;
@@ -26,21 +32,23 @@
       color:#6a3ea1;
     }
     .mektup{
-      background:#f8f5ff;
+      background:#4b0a7a;
       padding:18px;
-      border-radius:12px;
+      border-radius:14px;
       margin-top:15px;
-      line-height:1.6;
-      color:#4a3b63;
-      border:1px solid #e6dfff;
+      line-height:1.65;
+      color:#f7eaff;
+      border:1px solid #6d2fa3;
+      transition:background 0.4s ease, transform 0.3s ease;
     }
     .siir{
       margin-top:30px;
       font-style:italic;
-      color:#6a3ea1;
-      font-size:18px;
+      color:#f0d9ff;
+      font-size:17px;
       line-height:1.7;
       padding:10px 0;
+      transition:opacity 0.4s ease;
     }
   </style>
 </head>
@@ -54,7 +62,7 @@
       Ama aşkım... babam sinir krizi geçirdiğinde evde ne huzur kalıyor ne sevgi... ne de
       uyku... O gece uyumak istedim, gerçekten uyucaktım ama uykum bir türlü gelmedi. <br><br>
       Aşkımmmmmm canımmmmm heryerimmmmmmmm... Sen benim BİRTANEM'sin. <br>
-      Seni üzmek istemezdim, kalbim... Beni affet.
+      Seni üzmek istemezdim, kalbim... Beni affet.Sevgilimmmm ilişkimizde ikimizinde hataları olucak illlaki önemli olan hatalarımızı anlayıp ders çıkarıp birdaha yapmamak değilmi aşkımmm
     </div>
 
     <div class="siir">
@@ -238,3 +246,5 @@
       tatlı inadım 🙈<br>
       
   </div>
+</body>
+</html>
