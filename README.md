@@ -3,7 +3,7 @@
 <head>
   <meta charset="utf-8" />
   <meta name="viewport" content="width=device-width, initial-scale=1" />
-  <title>Özür Dilerim bebeğimmmmm ❤️</title>
+  <title></title>
   <style>
     body{
       margin:0; padding:0;
@@ -54,196 +54,15 @@
 </head>
 <body>
   <div class="box">
-    <h1>Özür Dilerim...</h1>
+    
 
-    <div class="mektup">
-      Bebeğimmm gerçekten özür dilerimm... Sana söz verdim 1'de uyucam diye ama sözümde
-      durmadım, haklısın. Gerçekten özür dilerim. <br><br>
-      Ama aşkım... babam sinir krizi geçirdiğinde evde ne huzur kalıyor ne sevgi... ne de
-      uyku... O gece uyumak istedim, gerçekten uyucaktım ama uykum bir türlü gelmedi. <br><br>
-      Aşkımmmmmm canımmmmm heryerimmmmmmmm... Sen benim BİRTANEM'sin. <br>
-      Seni üzmek istemezdim, kalbim... Beni affet.Sevgilimmmm ilişkimizde ikimizinde hataları olucak illlaki önemli olan hatalarımızı anlayıp ders çıkarıp birdaha yapmamak değilmi aşkımmm
+    <div Öncelikle hoşgeldin Feyza dediğime bakma ismini yazarken bile yüreğim ısınıyo o kadar, seni ne kadar çok sevdiğimi ne kadar çok aşık olduğumu biliyorsun sabahlara kadar şiir yazdığımı veya siteler ve en değerlisi bütün güvenimi zamanımı harcamam. Bunları şuan söylüyorum yanlış anlama yüzüne vurmak için değil, aslında en en derine gidersek hatta direk ilk gün 17 Ağustos gecesi seni ilk o grupta gördüğüm an kalbim ısındı yalan yok o kadar kız gördüm konuştum ( arkadaş olarak) ama hiç biri ne bilim hiç samimi yakın gerçek gelmedi sahteydi yalandı ama senin gözlerindeki ışık o sözlerin bir masal gibi adetâ büyüledi kanım bir anda nasıl oldu bilemeddim ısındı kaynadı adetâ sonrasında ilk seni cidden çok sevdim ama aşk olarak değil ne bilim arkadaş olarak yakın Arkadaş hayatımda en çok istediğim şey bir kız Arkadaşa sahip olabilmekti yanlış anlama anlamazsın zaten bu arzulamak veya fiziki bir şey değil ya böyle zor zamanında yanında olan sarılabildiğin ona koşulsuz sevebileceği güvenebileceğin birisi birlikte böyle herşeyin üstesinden gelebileceğin biri küçükken benim hiç ama hiç arkadaşım olmadı onurum çok kırıldı kadınların bilemem ama erkeğin onurunun kırılması çok kötü kadınlarınkini küçümsemiyom, küçükken ailem çok fakirdi yalan yok doğrular bunlar, çevremdeki her yalıtım kız erkek fark etmez hep küçük düşürüldüm dayak yedim varya kimse bilmez Sedat bile bilmez 7 yaşımda 8 yaşımda hep itilir kakılır köpek gibi muamele görürdüm özellikle o kızlardan Allah belalarını versin nedense hep kızlara garezim vardır yani tanımadığım çevrem haricindeki hep dalga geçerlerdi kiloydum birazda wşsmwls hep dalga geçilirdim hep sabrımı sınanırfı hep hep aklıma gelen her dk hep alay geçilirdi ilk başlarda ağlardım yalan yok çocuktum sonra ağlamamayı öğrendim ama bitmedi etrafımdaki o insanlar bitmedi sustum hep sustum, babamın mesleğiyle dalga geçtiler en kötüsüde benim için oydu Sedat çağlar alpo bile bir kere bile konusunu açmazlar hani pek kullanmazlar konuşmazlar bilirler çünkü bi onlar bilir zaten babamın mesleğini he bide sen ve dilek diğer arkadaşlarımın hepsii hiçbiri bilmez söylemem çünkü küçükken o kadar ağladımki gözlerim aslında ondan hasta aslında Hall arasında şey denir ağlaya ağlaya gözlerinin geri gitmiş derler kızarır hep özelikle Bahar ayında ,kimseye söylemedim şuan bunu bilen tek kişisin doktora gittinmi dicek olursan gittimde doktora bile söylemediğim için doktor hep Bahar allerjisi dedi geçti ilaç verip gönderirdi, küçükken her gece yatağa geçerdim herkes uyuduktan sonra uyuyamazdım ağlardım hep ağlardım sabahlara kadar hemde Sabah ezanlarına kadar hemde şimdi anlamışsındır neden ağlarken birisinin görmesini istemediğimi, yaş ilerledikçe olgunlaştım kimsesiz olmaya karar verdim belkide en büyük hatam budur 5 yıl fln hep yalnız takıldım dışarıda evde okulda hep her yerde tek takıldım fikirlerim düşünce yapım veya hayata bakış açım değişti normalde kekeme biriyimdir böyle lafları yanlış söyler takılırım böyle akrabalar içinde heyecan yapıp yanlış söylerdim kelimeyi babam her seferinde rezil ederdi çok zoruma giderdi ona rağmen bence akademik kariyerimi ilerletebildim, sonrasında orta okula geçtim sonunda ilk okul bitmişti işkence son bulmuştu ama şimdide çok yalnızdım irtetnej telefon fln yok televizyon vardı onada pek bakmazdım ne bilim öyle çok çizgi filim bilmem hatta direk hiç bilmem küçükken öyle yaşıtlarım oyunları konuşuyorlardı ama ben susardım bilmezdim çünkü cahildim o konularda kendimi yalnızlığa o kadar kaptırmıştımki her sıkıldığımda yemek yiyordum obez oldum sonunda, kendimden iğreniyordum tiksiniyordum nefret ediyordum böyle her aynanın karşısına çıkınca kendime sövüyordum hakaretler aklıma gelcek herşey orta okul zamanları işte. Ergenlik dönemleri, en korktuğumda başıma gelmişti orta okul dönemi ne kadar kız varsa benimle uğraşırlardı dalga geçerlerdş gülerlerdi canım anam yemek karardı kurban olurum ben ona arkadaşlarımın hepsi zengin tabi kantinden alıyorlardı yemeğimi alıp milletin içinde rencide ederlerdi zoruma giderdi kanıma dokunurdu sabrım küçük yaşta o kadar sınandıki şimdi yabancı birisi en ufak bişi yapsa anında öldüresim geliyo duramıyorum sinir sistemlerinde oynadılar, orta okulun sonlarına doğru sedatla tanıştım kardeşimle koskoca okulda bi o bana iyi davranırdı yardım ederdi Allah ondan razı olsun beni hep savundu yanımda durdu ona can borcum var o kadar, orta okulun sonlarına doğru sinir problemlerim başladı artık sabrım azalmıştı sevgi ise hiçti sadece bir nefret içimde karşıcinse karşı ufacık bile sevgi hiç yoktu ama saygısızlığımda yoktu, ama hep içimde ne bilim belkide bilmediğimden böyle ulan keşke benimde sevdiğim biri olsa oda beni sevse diyordum ama bi o kadarda nefret ediyordum şahsi değil genel olarak orta okul yavaş yavaş bitmeye başlıyordu o küçük sarışın Muhammed ne sevgiye ne gerçrk arkadaşlığa gerçek aşka inancı sıfırdı, sonradan sanalla tanıştık o bana arkadaşlık yaptı ben ona vaktimi verdim benim gibi bir sürü insan tanıdım travması olandan tut kanserine kadar birazda orda hayatı öğrenmiş oldum biraz olsun arkadaşlığa dostluğa inancım olmuştu he bu arada Çağlar ve alpoyla nasıl tanıştın dersen aslında Sedat sayesinde onlar grup halinde takılıyorlardı onlarlada tanışmış oldum sonucundada hepsi kardeşim olmuş oldu, neyse sanal çok değişik bir yerdi insanlar aynı seningibi olunca seviyo benimsiyo sonradan sanalda bi arkadaş grubuna güvendim en büyük hatamda o çok büyük bir tehlikeden ucuz kurtuldum gibi bişi sanalda bi o kadar arkadaşım oldu kız erkek bir sürü arladaş dediğimde çok yakın değil sadece sohbetten oluyordu DM yoktu çoğuyla, biraz olsun kendime gelmiş oldum ama ne geçmişi silebildim nede unutabildim aklımı kaçırıyordum defalarca, sonrada nihayetinde liseye geçmiş oldum kendime o ilk gün söz verdim kimseyle konuşmucam diye hâlada geçerli yapıyorumda yani bir kaç tane dışında illaki konuşuyorum ama yakınlık merhaba gibi şeyler asla gereksiz gördüm hep modsuz uykusuz hep yalnız sizin tabirle melonkolik biriydim depresif gibi ailem zaten ayrı bişi herşey artık yarama tuz bastırıyordu lisem neyseki ilk okul ve orta okul gibi değildi yada belkide gereksiz sohbet veya yalnız kaldığım için bir kaç tanesi dışında kimse karışmadı tek konuştuğum sanaldan bir kaç kişi ve o süper dörtlüydü sanaldan farklı farklı insanlarla arkadaş oldum farklı düşüncelerde farklı vizyon ve misyon da, İlk başta sanal dedim karanlık Dünya bişi olmaz ama ordada sanal çok tehlikeliydi aklıma gelebilecek herşey vardı benim o girdiğim dönemde çok kötüydü dolandırıcılar organ mafyalsrı fln korkuyordum birazda ilk başlarda Instagram gruplarına girdim lisenin İlk yıllarında çok farklı insanlar vardı gereksiz mesafeye gerek duymadan sohbet ettim bazılarıyla arkadaş oldum baya yakın oldum öyle öyle derken seni gördüm ilk gördüğümde kalbim sana ısındı ama aklım kadın milletinin hep aynı olduğunu adeta yaşadıklarımı gözüme film şeridi gibi getirdi korktum birazda hem seni istiyordum hemde zarar görmekten korkuyordum, belkide fark etmişsindir sana Birgün gelip açılmaya çalışıp ikinci günü bacım dediğimi aslında orda kalbim ile beynim arasındaki kavgayı ediyordum en sonunda kalbimin yolundan gittim herşeyi sildim bütün ön yargıları yaşanmışlıkları içimden kendime bir söz verdim ne olursa olsun onu hep mutlu edicem dedim hiç üzmücem hep mutlu edicem demiştim ama yanıldım evet çok mutlu ettiğim zamanlar oldu hatta mutluluktan göz yaşların akıyordu şiiirler yazdım siteler vakitler tüm ilgimi sevgimi verdim güvenimi emanet etmedim emanet etmek geri almak olurdu direk sana verdim çünkü seni çok seviyorum hemde çok kimseye ne kadar çok sevdiğimi anlatamam o kadar çok sevdimki kendimi bile bazen unutuyordum hani aşık adam kör olur derlerua yanlış anlama wşsmwlsmw direk kör oluyordum hani gözüm sadece seni görüyordum e elbette o kadar seviyorsamda bi o kadarda kıskanıyordumki yolda biriiisi seni gördüğünü bilmek beni böyle deli ediyordım aklım hep sende kalıyordu ve hala öyle, ama ne bilim işte o kadar sevgi ilgi verince bende aynısını alırım diye düşündüm öylede oldu ama bazen evet çok ilgiliydin lafım yok onlara ama bazen ne bilim böyle içimdeki çiçek olursa soluyorfu bi anda kuruluyordum aynı bir çiçek gibi inceydim sana çünkü hayatımda hiç kimseyi bu kadar çok sevmemiştim dışardan bakınva psemses gibi gözüküyo olabilirim ama bu sadece sana, böyle bazı haraketlerin sabaha kadar düşünüyordum acaba neden yaptı bunu bana neden böyle oldu gibi gibi o reposladığın şeyler varsa saatlerce araştırıyordum acaba niye bunu paylaştı neden böyle diye kafayı bozuyordum bazen, ne bilim bazen önemşi hissetmek istiyordum işten çıkınca gelsin böyle konuşalım edelim ne bilim odasına geçince uzanıp konuşalım dışarı çıkınca görüntülü arasın diye çok istedim ama şu ana kadar topalasan 3 veya 4 kere görüntülü konuşmuşuzdur ne bilim dilekle her hafta çıkıyo bir kerede benim için çıksın parka oturalım saatlerce görüntülü konuşalım fln çok istedim hemde çok ne bilim her dışarı çıktığında makyajına nereden baksan 1 saat en azından vakit ayırıyo banada acaba dışarı çıkınca ararmı diye düşündüm bazen böyle acaba sevmiyormu diye düşünüyordum, bazen böyle soğuk davrandığında saatlerce düşünüyorum acaba neden ne oldu o kadar seviyorumki herşeyini bilmek istiyordum ne bilim günün nasıldı fln dediğimde gelip böyle utanç verici veya çok güzel bi anını duymak istiyordum yalan yok bazen dileği aradığımda soruyordum nasıl takılıyorsunuz diye o anlatıyordu ondan değilde senden dinlemek çok istiyordum ne bilim hani böyle değerli hissetmek istoyordum yanlış anlama değersiz hissettiriyorsun demiyorum evet zaman ilgi alaka herşeyi yapıyordun ama ne bilim bende tam anlamıyla anlatamıyorum çok değişik bir durum anlatamıyorum ama sen anlıyorsun değil mi? Sorucak olursan neden bunca zaman söylemedin veya neden daha erken demedin dersen içime attım biraz dedim zamanla hepsi geçicek dedim aylar oldu ama hala aynı kaldın e haliyle bende değiştim ne bilim kırılan insan biras hani öfkeli olurmuş ya tartışmalarımızın birazda ondan dolayı olduğunu söyleyebilirim seni o kadar çok seviyorumki bunların hiçbirini söylemedim dedim o benim biriciğim hepsi geçicek dedim o kadar seviyorumkş belki hatırlarsın 17 Şubat gecesi 03 suları fln seninle o gece ex konusu fln konuşmuştuk orda yaşadıklarını duymak böyle anlatıyordunya kalbime iniyordu acaba öpüşmüşmüydü diye Allah'a yalvarmıştım Allahım inşallah yoktur diye ama böyle senden dinlerken 3 saat fln konuşmuştuk pencere açıktı annem fln duymasın diye hava -3 derece flndı ama yemin olsun terlemiştim o kadar çok kalbime ısı indi ardından Ağrı böyle içimde bişi sızlıyordu sana fark ettirmemek için varya elimden gelenin hepsini yaptım çünkü o orda senin en büyük beklediğin şey benim tepkimdi sular seller gibi aşık olduğun kızdan öyle şeyler duymak o kadar acı ki anlatamam o gece tutamadım kendimi o kadar çok ağladımki oysa ağlamıyorrdum gözümden yaş düşüyordu kalbime İnen o acı sanki ölüyorum sandım çok ağırdı sana belli etmeden konuyu değiştirdim sonra kapattım senin uykun fln gelmişti o gece sabah olmucak sanmıştım hayatımın en zor gecesiydi kendime gelemiyordum yanlış anlama senin hakkındaki fikirleim değişmedi hiçbir zaman değişmicekte ama işte canından kanından bile çok sevdiğin kızın böyle olayını öğrenince insan kahroluyo ilk bir hafta kendime gelemedim akşamları yemek yemiyordum ağzımdan nasıl lokma geçsinki öğlenleri zar zor simit yiyordum baabm bile fark etmişti kenara çekip sormuştu ama geçiştirdim onuda sanada belli etmedim içinde hallettim 2 hafta aklımdan hiç çıkmadı sonralarda bir yazı beni derinden etkiledi ve atlatmış oldum veda hutbesinde yazar kadınlar Allah'ın size vermiş olduğu emanettir onları sahip çıkmak en büyük sorumluluğumuzdur diye bir yazı bundan sonrs yavaş yavaş unuttum artık aklıma gelmiyordu hayırlısıda budur belki dedim Allah bizim için en hayırlı vakti belki bu zamanı seçti dedim kendi kendime yavaş yavaş cidden unutmuştum ama ne zaman dışarıda bi çiftin el ele tutulurken yanağından veya öpüşürken gördüğümde aklıma geliyor gözlerim doluyo içime ağrı çöküyordu yönümü şaşırıyordum gündüzlerş aklıma gelmese bile ,her gece rüyalarıma giriyorfu kabusum olmuştu geceleri anında ter içinde uyanıyordum annem bile gelip sormuştu geceleri hep hayır hayır hayır diyip sayıklıyorsun demişti ama bunlarıds atlattım geçmiş geçmişte kaldı lan dedim ve beyninden söküp attım bunları neden anlatıyorsun dicek olursan hani bana diyorsunya "beni anlamıyorsun", nasıl anlarsan abla"," tahammülüm kalmadı", fln diyorsunya bunları senden duymak öyle zoruma gidiyorki yeminle içime oturuyordu, birazda kendimden bahsetmek gerekirse bunca küçüklükten berri böyle şeyler yaşamış biriyim her ne kadar yaşıtlarımdan katlar olgun olsamda ne kadar hepsinden değişik olsamda hep bir eksisi vardı bana küçüklükten berri babam hep sen herkesten değişiksin insanları hep kırıyorsun üzüyorsun pskopatın tekisin derdi inanmazdım sonradan fark ettim ki çok değişik biriyim çevremdeki sevdiklerimr zarar veriyorum bunu farkındaydım seninle tanıştıktan sonra en büyük korkum seni üzmekti kırmaktı ama kendimi kandırdım bi insanı kırmamak üzmemek imkansız insan annesini bile üzüyo bazen ne kadar istemese bile, seninle olan ilişkim çok güzel hâla öyle içimde ne bi sevgi azalması nede bir güvensizlik yok, seni son nefesime kadar seveceğim şimdi önümüzde iki yol var gerçekleri konuşucak olursak ya böyle tartışma kavga gürültü ile yola devam edicez( yolun sonunda birbirimizi artık çok kırdığımız için ayrılık olucak)yada oturup görüntülü olucak şekilde karşı karşıya gözler birbirine bakıcwk şekilde birbirimizin sorunlarını anlatıp anlaşıcaz ben her zaman bundan yanayım görüntülü olamasa bilr sesli olur, ama bunu halletmemiz lazım şimdi değil yani aceleyle yapmaya gerek yok oturup düşünmek için vaktimiz var ama geçiştirmeyede gerek yok umarım anlamışsındır müsait bir vakitte lütfen bi yerde Park bank fln fark etmez gerekirse saatlerce oturup konuşup anlaşıcaz eğer istiyorsak bu dediğimi senin için veya kendim için asla demiyorum bunu "biz " için ilişkimiz için yapıcaz gönülden gelerek yapıcaz seni seviyorum🫶.  
+
+
+Dün gece sabaha kadar oturdum düşündüm hatalarımı bir nevi gördüm anladımda
     </div>
 
-    <div class="siir">
-      güzelim 😍<br>
-      bir tanem 😘<br>
-      hazinem 💎<br>
-      canım 💖<br>
-      aşkım ❤️<br>
-      tatlım 🍯<br>
-      şekerim 🍬<br>
-      ruhum 🌙<br>
-      ömrüm 🌹<br>
-      prensesim 👑<br>
-      meleğim 😇<br>
-      kalbim ❤️‍🔥<br>
-      hayatım 🌍<br>
-      yıldızım ⭐<br>
-      ışıltım ✨<br>
-      nefesim 🌬️<br>
-      çiçeğim 🌸<br>
-      papatyam 🌼<br>
-      lalem 🌷<br>
-      gönlüm 💞<br>
-      minnoşum 🥺<br>
-      sarıldığım 🤗<br>
-      deli güzelim 😍<br>
-      incim 📿<br>
-      balım 🍯<br>
-      sevdiceğim 💘<br>
-      kuzum 🐑<br>
-      tatlışım 😚<br>
-      gözbebeğim 👁️<br>
-      yakamozum 🌊<br>
-      umut ışığım 🔥<br>
-      canparem 💗<br>
-      en değerlim 💝<br>
-      hayalim ☁️<br>
-      masalım 📖<br>
-      gülüşüm 😊<br>
-      derinim 🌊<br>
-      sonsuzluğum ♾️<br>
-      dünyam 🌎<br>
-      kaderim 🔮<br>
-      mutluluğum 😄<br>
-      şefkatim 🤍<br>
-      yumuşaklığım 🌸<br>
-      ateşim 🔥<br>
-      tatlı dillim 😋<br>
-      gamzeli güzelim ☺️<br>
-      zarafetim 👗<br>
-      parlak yıldızım 🌟<br>
-      güç kaynağım ⚡<br>
-      şiirim ✒️<br>
-      melodim 🎶<br>
-      rüyam 💭<br>
-      sıcaklığım 🔥<br>
-      sarılsam doyamadığım 🤍<br>
-      benim olan 💍<br>
-      en içtenim 💞<br>
-      dokunuşum 🤲<br>
-      hiç vazgeçemediğim 🤍<br>
-      en özelim 💫<br>
-      d**erim bile güzelim 😌<br>
-      kalbimin orta yeri ❤️<br>
-      mutlak sevgim 💖<br>
-      en tatlı halim 🍓<br>
-      mirasım 💎<br>
-      narinim 🕊️<br>
-      pırıl pırıl gözlüm 👀<br>
-      nefes kesenim 😘<br>
-      içimin çocukluğu 🧸<br>
-      sana doyulmayan 😍<br>
-      en iyim 🥰<br>
-      yol arkadaşım 🛣️<br>
-      gül kokulum 🌹<br>
-      ipeğim 🧵<br>
-      pamuk şekerim 🍭<br>
-      deli sevdam ❤️‍🔥<br>
-      huzurum ☁️<br>
-      düşlerim 💭<br>
-      kıyıma vuran dalgam 🌊<br>
-      komik yanım 😂<br>
-      en derin sessizliğim 🤫<br>
-      ilmek ilmek sevgim 🧶<br>
-      kalbimi titretenim 💗<br>
-      aklımı alanım 🤯<br>
-      en tatlı bağımlılığım 😍<br>
-      şifa gibi gelen 🌿<br>
-      büyük aşkım ❤️‍🔥<br>
-      yumuş yürekliğim 🤍<br>
-      kahkaha sebebim 😄<br>
-      ruhuma iyi gelen ✨<br>
-      tutkum 🔥<br>
-      beni en güzel sevenim 😘<br>
-      sahip çıkışım 🤝<br>
-      kollarına koştuğum 🤗<br>
-      sıfır hatalım 😌<br>
-      tatlı bakışlım 👀<br>
-      nazlım 🙈<br>
-      sevdalım 💓<br>
-      kader ortağım 🔮<br>
-      duru yüzlüm 🌼<br>
-      yağmur sonrası gökkuşağım 🌈<br>
-      dokunuşunda kaybolduğum ✋❤️<br>
-      kalp atışım ❤️<br>
-      en gerçekim 🤍<br>
-      hayat reçetem 📜<br>
-      masumiyetim 🤍<br>
-      gönül bağım 🔗<br>
-      unutulmazım 🕰️<br>
-      ilk günkü heyecanım ❤️<br>
-      güvenlim 🛡️<br>
-      özledikçe güzelleşenim 😍<br>
-      su gibi akan 💧<br>
-      şefkat selim 🌊<br>
-      sarılınca evim 🏠<br>
-      baktığımda eridiğim ☺️<br>
-      dillerde türküm gibi 🎵<br>
-      varlığı yetenim 🤍<br>
-      hayat enerjim ⚡<br>
-      her şeye rağmen güzelim 😅❤️<br>
-      çiçek açtıranım 🌺<br>
-      içimi titretenim 💗<br>
-      en parlak yanım ✨<br>
-      kalbimin şövalyesi 🛡️❤️<br>
-      kıymetlim 💎<br>
-      sebepsiz gülümsemem 😊<br>
-      can çiçeğim 🌸<br>
-      en tatlı tamamlayıcım 🧩<br>
-      kalbimi taşıyanım ❤️<br>
-      dizlerimi titreten güzel 😳<br>
-      yanak pembem 🍑<br>
-      şeker dokunuşum 🍬<br>
-      sıcacık nefesim 🌬️<br>
-      dudak büküşüm 😘<br>
-      sarılınca kaybolduğum yer 🤗<br>
-      çayımın şekeri ☕🍬<br>
-      kahvemin tadı ☕❤️<br>
-      sabah güneşim 🌞<br>
-      gece ayım 🌙<br>
-      umut çiçeğim 🌼<br>
-      yumuşacık kalbim 🤍<br>
-      en değer verdiğim 💝<br>
-      canımdan öteyim ❤️<br>
-      aşk dokunuşlum 💖<br>
-      gözlerinin derinliği 👀<br>
-      duygu sellerim 🌊<br>
-      şair yapanım 🖋️<br>
-      hayatımın en doğru kararı ✔️<br>
-      kanatlanan kalbim 🪽❤️<br>
-      gülüşünde kaybolduğum 😍<br>
-      huzur durağım 🤍<br>
-      kader çizgim 🔮<br>
-      hayatımın en güzel tesadüfü 🌍<br>
-      büyülüm ✨<br>
-      hayatımın melodisi 🎶<br>
-      usulca sevdiğim 🌬️❤️<br>
-      en değerli parçam 🧩<br>
-      kalbe işleyenim 💘<br>
-      dokunuşu şiir olanım ✒️<br>
-      gülüşü bahar olanım 🌸<br>
-      tek gerçeğim 🤍<br>
-      tek dileğim ⭐<br>
-      ölene dek seveceğim ❤️‍🔥<br>
-      sarılasım gelen 🤗<br>
-      tatlı küslüğüm 🙃<br>
-      şefkat kokум 🤍<br>
-      içimin ateşi 🔥<br>
-      bana bakan en güzel gözler 👀<br>
-      gönül rahatlığım 😌<br>
-      ruhumun mürekkebi ✒️<br>
-      hayatımın tatlı sürprizi 🎁<br>
-      göz kırpışım 😉<br>
-      gamze çukurum ☺️<br>
-      ten kokум 🤍<br>
-      içimi ısıtanım 🔥<br>
-      çözemediğim tatlı bilmece ❓❤️<br>
-      kalbime dokunan eller ✋❤️<br>
-      sonsuz sevgim ♾️<br>
-      gülüş bahçem 🌺<br>
-      tatlı inadım 🙈<br>
+    
       
   </div>
 </body>
