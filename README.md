@@ -29,7 +29,7 @@
     h1{
       margin-top:0;
       font-size:28px;
-      color:#6a3ea1;
+      color#ffffff;
     }
     .mektup{
       background:#4b0a7a;
